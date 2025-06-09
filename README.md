@@ -2,4 +2,4 @@
 
 
 
-   [rentry](https://rentry.co/meltylove)    [pronounscc](https://pronouns.cc/@krusie)    [help palestine](https://arab.org/click-to-help/palestine/)
+       [rentry](https://rentry.co/meltylove)    [pronounscc](https://pronouns.cc/@krusie)    [help palestine](https://arab.org/click-to-help/palestine/)
