@@ -2,4 +2,6 @@
 
 [strawpage](https://calw.straw.page/)   [bffs](https://rentry.org/tfgc)   [prnscc](https://pronouns.cc/@vogel)   [atabook](https://scartissue.atabook.org/)
 
-![imageedit_3_4966567748](https://github.com/user-attachments/assets/c78215a4-d809-437c-b984-e35876b855c0)
+<img width="275" height="288" alt="dog anaxa" src="https://github.com/user-attachments/assets/1676e6d6-1693-4afb-9761-c887981abba4" />
+
+look at our professor dawg were gonna fail
